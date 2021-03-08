@@ -1,5 +1,5 @@
 Slabko Artem
-375293324444 (Viber), artemslabko@gmail.com
-Только начинаю изучение языка, сделал это своим хобби. В данный момент моя профессия не связана с программированием. В дальнейшем рассматриваю возможность имезменить прфессию. 
-Имею средне специальное экономическое  (МКП - 2012 г.а.) и высшее образование (БГЭУ - 2019 г.а.) в области экономики
-Владею английским языком на базовои разговорном уровне
+375293324444 (Viber), arвtemslabko@gmail.com
+Just start study lagnguage . I do it my hobby. My profession not conected with programm. In the fiuter can change my proffession 
+Finish Minsk college of entrepreneurship in 2012 y. Profession  economist . In 2019 finish BSEU proffesion economist.
+My English level A1
